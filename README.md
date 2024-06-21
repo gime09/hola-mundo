@@ -13,6 +13,10 @@ In my head
 Like a stone
 Even Flow
 
+--------------------------------------
 
+This time, baby, I'll be
+Bulletproof
+This time, baby, I'll be
+Bulletproof
 
-Queens Of The Stone Age 
